@@ -1,4 +1,4 @@
-![[images/Pasted image 20241218125539.png]]
+![[./images/Pasted image 20241218125539.png]]
 This is an in-depth analysis of the impact of gender on promotions and salaries within the context of a lawsuit. This is a group work that I took part in. We had conducted a comprehensive study to shed light on the disparities faced by female doctors in the workplace. 
 
 
